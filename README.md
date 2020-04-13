@@ -1,0 +1,2 @@
+# videotemplates
+ffiliated with several creative marketplaces, where we handpick and promote items to save your time. In the meantime check out our shop on the website and stay tuned for your next Video Effect or Template. We are open to world wide collaborations with all authors, film makers, broadcast companies, creatives and other business subjects. Many of our items are sold on the Envato Elements, Videohive and Audiojungle some of them are showcased here, we also work as their affiliate member and Elite Author. Enjoy Video Effects marketplace.
